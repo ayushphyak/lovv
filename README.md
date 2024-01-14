@@ -1,2 +1,0 @@
-# lovv
-idk
